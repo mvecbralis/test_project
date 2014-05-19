@@ -10,3 +10,7 @@ Es tagad gribu paproveet kas notiksies.
 
 Nja tagad jamegina veikt kkadas lietas......a.sdfasdf.asdf.
 
+
+Jaizmaina paris lietas.
+
+
